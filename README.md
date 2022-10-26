@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MaristelaMachado
+👋 Hi, I’m @MaristelaMachado
 
 
 
